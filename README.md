@@ -1,1 +1,1 @@
-# ProqramlasdirmaninEsaslari
+# Proqramlasdirmanin Esaslari
